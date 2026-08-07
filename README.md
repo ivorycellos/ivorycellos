@@ -5,7 +5,7 @@
 
 ##### **${\color{#73293f}how}$ ${\color{#872643}can}$ ${\color{#ab385b}people}$  ${\color{#801744}say}$  ${\color{#9e2157}that}$  ${\color{#b52b67}kind}$  ${\color{#a12b47}of}$  ${\color{#8f274b}love}$  ${\color{#cc4363}is}$  ${\color{#a81b4c}wrong}$** 
 
-#####  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [ata](clownzyer.atabook.org) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [carrd](https://clownzyer.carrd.co/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎‎
+#####  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [ata](https://clownzyer.atabook.org) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [carrd](https://clownzyer.carrd.co/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎‎‎
 <img width="270" alt="Image" src="https://github.com/user-attachments/assets/a8e32fed-1b77-4b34-a650-388964a80e53"/>  ‎
 #####  ‎‎ ‎‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎‎  ‎ ‎‎ ‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎   ‎‎‎ ‎ ‎‎   ‎‎‎ ‎‎ ‎‎‎ ‎[art by.. @Avo0930](https://x.com/Avo0930/status/1868625842311671971?s=20) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$
 ‎‎
