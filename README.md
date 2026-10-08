@@ -11,4 +11,4 @@
 ‎‎
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31v6jdxfl3t47w3rrfddkaufip2e&redirect=true"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31v6jdxfl3t47w3rrfddkaufip2e&cover_image=true&theme=novatorem&show_offline=true&background_color=0d0d0d&interchange=true&profanity=false&hide_remaster=false&bar_color=b4505f&bar_color_cover=false">
 
-do NOT print and post my skins nor inspiration. ty.‎
+do NOT print and post my skins ask 4 inspiration. yes i have a lot of alts
