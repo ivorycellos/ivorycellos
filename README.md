@@ -1,7 +1,7 @@
 ##### ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎  ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ [art by.. @HIOBOWY](https://x.com/HIOBOWY/status/1827839603996565903?s=20) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#ab385b}➷}$
 <img width="490" src="https://github.com/user-attachments/assets/b7bb9c23-59cd-4be6-b435-759a5545f305" align="left">
 
- ![](https://komarev.com/ghpvc/?username=ivorycellos&base=11&label=whitepine&style=plastic&color=c25362)
+ ![](https://komarev.com/ghpvc/?username=ivorycellos&base=11&label=whitepine&style=plastic&color=ad4557)
 
 ##### **${\color{#73293f}how}$ ${\color{#872643}can}$ ${\color{#ab385b}people}$  ${\color{#801744}say}$  ${\color{#9e2157}that}$  ${\color{#b52b67}kind}$  ${\color{#a12b47}of}$  ${\color{#8f274b}love}$  ${\color{#cc4363}is}$  ${\color{#a81b4c}wrong}$** 
 
